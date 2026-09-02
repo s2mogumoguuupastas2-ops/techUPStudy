@@ -1,4 +1,1 @@
 # techUPStudy
-# techUPStudy
-# techUPStudy
-# techUPStudy
