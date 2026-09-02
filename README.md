@@ -1,1 +1,1 @@
-# techUPStudy
+# 佐々木美苗
